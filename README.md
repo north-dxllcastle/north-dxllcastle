@@ -1,3 +1,5 @@
+![](https://64.media.tumblr.com/df50ce62f401ed4eaa06041951899d7c/0bf822ee66b233a0-7c/s640x960/22feb2078275c39947e7bf4fb57830b36c2baf37.pnj) 
+
 
    　   　𝖘𝖙𝖆𝖗𝖑𝖎𝖌𝖍𝖙, 𝖘𝖙𝖆𝖗𝖇𝖗𝖎𝖌𝖍𝖙...𝖙𝖍𝖊 𝖋𝖎𝖗𝖘𝖙 𝖘𝖙𝖆𝖗 𝖎 𝖘𝖊𝖊 𝖙𝖔𝖓𝖎𝖌𝖍𝖙.
 
@@ -7,10 +9,6 @@
 
 
 
-
-
-
-![](https://64.media.tumblr.com/df50ce62f401ed4eaa06041951899d7c/0bf822ee66b233a0-7c/s640x960/22feb2078275c39947e7bf4fb57830b36c2baf37.pnj) 
 
 ![](https://64.media.tumblr.com/cacb34bd7059e2fd3fbc212b70f83ed0/dd0b327050c59e98-47/s250x400/32514b9b70c9bdb6918a3232d1092dff64bfc68a.gifv)
 ![](https://64.media.tumblr.com/4e7df89e3a7803f6cdded526748efe37/d0eb9ed0074d9ed4-e8/s250x400/ceb9ed1edbc4909158d7865b42fd4e42429bcfeb.gifv)
