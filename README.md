@@ -6,7 +6,7 @@
    　   　   　  　   　   　   　────────
 
 
-![](https://64.media.tumblr.com/edce5eab320cb4663a38e344215b73c6/999a431d6c437909-e2/s640x960/719554941ac05742123a8ce20a81b8c09c44001b.jpg)
+
 
 
 
